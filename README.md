@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FootsoreFlame
-- 👀 I’m interested in gaming and school.
-- 🌱 I’m currently learning in 10th grade.
+- 👀 I’m interested in gaming and web design.
+- 🌱 I’m currently learning in 11th grade.
 - 📫 How to reach me, Isaac4life0@gmail.com
 
 <!---
